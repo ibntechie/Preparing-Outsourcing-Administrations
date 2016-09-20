@@ -33,4 +33,4 @@ A touch of the key purposes behind interest that MPO firms give are given undern
 
 •	Capacity to get up to speed with repayments and defaults: This grants to suppliers. MPO firms in India can take a gander at, examination and separate spectacularly fundamental documentation for cases and counter cases before passing them on to the great 'ol molded social affairs in these affiliations.
 
-http://ibntech.com/mortgage
+
